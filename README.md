@@ -1,3 +1,2 @@
 20223062 Jaehyeok
-Kookmin Univ.SW
-
+Kookmin Univ.SW dept.
